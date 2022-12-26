@@ -1,1 +1,0 @@
-# Omeryasinozturk.github.io
